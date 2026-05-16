@@ -1,4 +1,4 @@
-# 
+# automatic Camtasia for PC | Camtasia for Windows Tool | auto-cut + audio-sync offers the most advanced Camtasia for PC | Camtasia for Windows tool, with auto-cut and audio-sync.
 
 
 
